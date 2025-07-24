@@ -11,7 +11,7 @@ Looking for an IT Asset Disposal (ITAD) partner committed to the highest sustain
 
 The Recycling Industry Operating Standard (RIOS) is like a triple threat for eco-conscious customers. It’s a globally recognized program that ensures we meet the highest standards in quality, environmental responsibility, and worker safety. So, when you choose us for IT Asset Disposal (ITAD), you can be confident your electronics are recycled ethically and securely, minimizing environmental impact and protecting workers’ well-being. Think of it as a gold star for responsible recycling, giving you peace of mind that your data is wiped clean and your old devices get a new life without harming the planet. Choose RIOS-certified ITAD – it’s good for you, good for the environment, and good for everyone!
 
-[Looking for second-hand electronics? Check out or EBay store!](https://www.ebay.com/str/evolutionecycling)
+[Looking for second-hand electronics? Check out our EBay store!](https://www.ebay.com/str/evolutionecycling)
 
 # The Evolution E-Cycling Process
 
