@@ -5,6 +5,8 @@
 
 Phone: (412) 390-3450
 
+Please pardon the bare-bones look of this site. We'll be back with something better soon!
+
 Evolution E-Cycling is a locally owned and operated computer and electronics recycling business based in Pittsburgh Pennsylvania. We are ISO 14001, R2 v3, and RIOS certified. We’re proud to provide industries and consumers with safe and expert e-waste recycling and data destruction services. At Evolution E-Cycling, we’re dedicated to properly disposing, refurbishing, and refining electronic elements.
 
 Looking for an IT Asset Disposal (ITAD) partner committed to the highest sustainability and security standards? Look no further! Our R2v3 certification signifies our dedication to responsible electronics recycling practices. Unlike lesser standards, R2v3 focuses not just on recycling, but also on data security, worker safety, and environmental responsibility. It means your old devices are processed ethically, with secure data destruction, environmentally sound practices, and fair working conditions. Think of it as the ultimate assurance that your ITAD partner prioritizes both the planet and its people. Choose R2v3 certified ITAD – it’s the smart choice for a greener future and secure data disposal!
